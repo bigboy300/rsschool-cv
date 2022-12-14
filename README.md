@@ -1,1 +1,1 @@
-# rsschool-cv
+https://bigboy300.github.io/rsschool-cv/cv
